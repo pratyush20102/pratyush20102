@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **pratyushparashar02@gmail.com**
 
-- 📄 Know about my experiences by going through my [Resume](https://bit.ly/3zjU5Og)
+- 📄 Know about my experiences by going through my [CV](https://bit.ly/3zjU5Og)
 
 - ⚡ Fun fact **I believe I am passionate towards my goal**
 
