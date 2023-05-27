@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **MERN Stack and Flutter**
 
-- 💬 Ask me about **Python, REST APIs and Computer Vision**
+- 💬 Ask me about **Python, Competitive Programming and Computer Vision**
 
 - 📫 How to reach me **pratyushparashar02@gmail.com**
 
